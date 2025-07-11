@@ -8,4 +8,4 @@ makeup and fashion -- those are two creative things that i like, but i dont like
 
 americans can buy small chateaus in france ... imagine just working from home from there BUT ... BUT they could be haunted bc they could be centuries old lol that would be soo annoying
 
-the french dont care about PDA in a museum ... see that would be an incredibly fun day
+the french dont care about PDA in a museum ... see that would be an incredibly fun day ... you have to make out with me like the whole day at this museum like im your mistress as this is just what has to happen, there is no other scenario that can happen
